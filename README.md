@@ -1,0 +1,8 @@
+- 👋 Hi, I’m Julia
+- 👀 Sou estudante da 1ªB, na escola Leonardo vilas Boas. na cidade de Osasco/SP.
+- 🌱 estou aprendendo a usar o alura e outras plataformas.
+- 💞️ Nas minhas horas vagas gosto de frequentar a academia
+- 📫 Meu sonho é casar com o jungkook do BTS e ganhar na MegaSena
+- 😄 pronomes: Ela/Dela
+- ⚡ Contado: @Jubyli4_
+- ![](https://media1.tenor.com/m/SRHtgcsDcrAAAAAd/jungkook-jeon-jungkook.gif)
